@@ -1,6 +1,6 @@
 ### Hi there! 👋 
 
-Just another average dumb person!
+Just another average dumb person! (i'm fr slow)
 
 I do a lot of Minecraft related stuff.
 
