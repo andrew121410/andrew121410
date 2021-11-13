@@ -6,7 +6,6 @@ I do a lot of Minecraft related stuff.
 
 - ✨ My most comfortable programming languages are at the moment Java and Kotlin!
 - 📫 If you want to reach me the best way is through discord <Andrew121410#2035>
-- 😄 Pronouns: he/him
 <!--
 **andrew121410/andrew121410** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
